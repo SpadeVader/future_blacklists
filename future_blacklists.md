@@ -7,3 +7,4 @@
 | Br0      | Called Swirls a n^gger and is a burly queer    |
 | imTri | Loser and piece of shit. |
 | GoDzOneManArmy | Punk ass e-dater |
+| cbrady350 | cringey loser that tells egirls to bend over in game |
