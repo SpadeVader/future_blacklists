@@ -10,4 +10,4 @@
 | sled | skid lol |
 | RydanMC | loser |
 | System/SystemUpdate | Sorry |
-| Delta/Samuel | Sorry |
+| Delta/Samuel | not as sorry but sorry |
