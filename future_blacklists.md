@@ -7,3 +7,4 @@
 | Delta/Samuel | scammed me and leaked my SHIT |
 | RydanMC | scammed me and leaked my SHIT |
 | Swirls | made me cry |
+| Reframe | came at my mom's |
